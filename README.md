@@ -1,0 +1,1 @@
+# FirstCalligraphyOfTheYear2025
